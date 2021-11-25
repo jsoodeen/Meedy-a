@@ -1,4 +1,4 @@
-# Social media is MEEDYER than over cooked turkey breast
+# Social media is meedia than over cooked turkey breast
 as the great Morissey once said:
 
 >"Oh, I didn't realise that you wrote poetry
