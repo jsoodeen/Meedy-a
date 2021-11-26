@@ -1,5 +1,5 @@
-# Social media is meedia than over cooked turkey breast
-as the great Morissey once said:
+# Meedia
+Morissey once said:
 
 >"Oh, I didn't realise that you wrote poetry
 >
@@ -38,7 +38,7 @@ i blocked her
 <p>&nbsp;</p>
 <p>&nbsp;</p>
 
-as the great morissey twice said:
+morissey twice said:
 
 >"Frankly, Mr. Shankly, I'm a sickening wreck
 >
@@ -69,7 +69,7 @@ my dad wouldnt let me leave
 <p>&nbsp;</p>
 <p>&nbsp;</p>
 
-as the great morissey thrice said:
+morissey thrice said:
 >"I want to live i want to love
 >
 >I want to catch something I might be ashamed of"
@@ -111,7 +111,7 @@ also what happens if nan starts following that account
 <p>&nbsp;</p>
 <p>&nbsp;</p>
 
-as the great morissey fourice said:
+morissey fourice said:
 
 >"Frankly, Mr. Shankley, since you ask
 >
